@@ -5,12 +5,18 @@
   `Ravy`**un** or *Rivi'!  ♱⋆  
  ![image description](https://64.media.tumblr.com/760ff1c145bab4ec7073397113a5163e/78ad3fc6a55c17c5-54/s75x75_c1/769906c9cdff1c90a85960daacfb2b9ac4d39124.gifv) W2i! `C*h` freely!*
  ![image description](https://64.media.tumblr.com/f476fb06a40cf7a9531e382745b84c17/0d9d6392a423e969-d3/s400x600/a96244a8d0fb7e1d5c47dd72a3cab7df45a38aa9.gifv) 
- ⁺‧₊˚ ཐི GAMES ཋྀ ˚₊‧⁺  
+ ⁺‧₊˚ ཐི GAMES! ཋྀ ˚₊‧⁺  
  ``Uhh I dunno how to add links.``
  
-  ⁺‧₊˚ ཐི ANIMES ཋྀ ˚₊‧⁺  
+  ⁺‧₊˚ ཐི ANIMES/KINS ཋྀ ˚₊‧⁺  
  `Bsd- PMMM` 
-*I kin Dazai help* <img width="250" height="308" alt="tumblr_beff4d1a10827672ef87144d033dad93_7bcb1662_250 (1)" src="https://github.com/user-attachments/assets/5c13caf8-1fa9-43b9-89d7-c566bfd674f8" />
+ `Shield Hero`
+ `uhhh I dunno `
+ `JJK`
+*I kin Dazai help? </3*
+*Uhh Probably Naofumi*
+*Megumi heh*
+<img width="250" height="308" alt="tumblr_beff4d1a10827672ef87144d033dad93_7bcb1662_250 (1)" src="https://github.com/user-attachments/assets/5c13caf8-1fa9-43b9-89d7-c566bfd674f8" />
 
 
  ![image description](https://64.media.tumblr.com/194f5092c8a6c66df2df6deedb631926/25d0063fd885880b-61/s1280x1920/c8120a60bee8f4d8182559609a2b61941d8d516d.pnj) 
