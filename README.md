@@ -19,7 +19,9 @@
 *I kin Dazai help? </3*
 *Uhh probably Naofumi ifykyk*
 *And Megumi heh*
-<img width="250" height="308" alt="tumblr_beff4d1a10827672ef87144d033dad93_7bcb1662_250 (1)" src="https://github.com/user-attachments/assets/5c13caf8-1fa9-43b9-89d7-c566bfd674f8" />
+<img width="200" height="208" alt="tumblr_beff4d1a10827672ef87144d033dad93_7bcb1662_250 (1)" src="https://github.com/user-attachments/assets/5c13caf8-1fa9-43b9-89d7-c566bfd674f8" />
 
 
  ![image description](https://64.media.tumblr.com/194f5092c8a6c66df2df6deedb631926/25d0063fd885880b-61/s1280x1920/c8120a60bee8f4d8182559609a2b61941d8d516d.pnj) 
+
+
